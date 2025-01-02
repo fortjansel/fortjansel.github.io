@@ -1,2 +1,5 @@
-# fortjansel.github.io
-no games are mine but just have fun
+jansel's games beta
+
+hi this is just jansel's games not done but will be soon
+
+https://1v1.lol/
